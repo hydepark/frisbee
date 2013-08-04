@@ -41,6 +41,9 @@ Whether you're new to town or new to ultimate we encourage you to come by. All y
 -   **Q**: I'm just here for the Summer. Is it ok that I join?
 
     **A**: Absolutely - also, you won't be alone. Lots of interns/summer students play with us just for the season. It's also a great way to meet people in Chicago.
+-   **Q**: I'm new to the game, and a bit anxious about jumping in.  What should I do?
 
+    **A**: You should come.  It's a very supportive group and we all started just like you.  If you're scared then bring a friend at a similar skill level; the two of you can guard each other and you won't feel awkward at all.
+    
 *Have a sense of style? Think you can improve this webpage? Please do! 
 Fork us on [github](http://github.com/hydepark/frisbee)*
