@@ -43,4 +43,4 @@ Whether you're new to town or new to ultimate we encourage you to come by. All y
     **A**: Absolutely - also, you won't be alone. Lots of interns/summer students play with us just for the season. It's also a great way to meet people in Chicago.
 
 *Have a sense of style? Think you can improve this webpage? Please do! 
-Fork us on [github](http://github.com/mrocklin/hpfrisbee)*
+Fork us on [github](http://github.com/hydepark/frisbee)*
