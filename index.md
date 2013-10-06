@@ -11,7 +11,7 @@ title: Basics
 Hyde Park Ultimate
 ------------------
 
-We're a friendly community game of pick-up ultimate centered in the Hyde Park neighborhood of Chicago, IL. During warm months we play at Promontory Point park on Sunday starting at 2pm.
+We're a friendly community game of pick-up ultimate centered in the Hyde Park neighborhood of Chicago, IL. During warm months we play at Promontory Point park on Sunday starting at 1pm.
 
 Whether you're new to town or new to ultimate we encourage you to come by. All you need to bring is comfortable running gear and a good spirit.
 
