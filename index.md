@@ -23,7 +23,7 @@ Whether you're new to town or new to ultimate we encourage you to come by. All y
 
 -   **When:** Every Sunday afternoon
 
--   **When exactly?:** Traditionally 2pm, but during the winter we're a bit flexible for people's schedules. Check the [e-mail list](https://groups.google.com/forum/?fromgroups#!forum/hpfrisbee) for announcements.
+-   **When exactly?:** Usually 1pm, but during the winter we're a bit flexible for people's schedules. Check the [e-mail list](https://groups.google.com/forum/?fromgroups#!forum/hpfrisbee) for announcements.
 
 -   **Where:** We play at [Beautiful Promontory Point Park](http://maps.google.com/maps?q=Promontory+Point+Park,+5491+S+South+Shore+Dr,+Chicago,+IL+60615&hl=en&ll=41.795824,-87.5776&spn=0.024476,0.038581&sll=41.794403,-87.584182&sspn=0.012238,0.01929&oq=promontory&hq=Promontory+Point+Park,+5491+S+South+Shore+Dr,+Chicago,+IL+60615&radius=15000&t=m&z=15), roughly 55th South and the Lake. Despite being relatively far south we're oddly well connected to downtown. Both the \#6 and Metra Electric Train stop a couple blocks away. If you're driving we're very close to the 53rd street exit on Lake Shore Drive 
 
