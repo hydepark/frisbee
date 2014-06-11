@@ -31,7 +31,7 @@ Whether you're new to town or new to ultimate we encourage you to come by. All y
 
 -   **Awesome pictures of us:** One of our members happens to be a professional photographer. He has put up some lovely [pictures on flickr](http://www.flickr.com/photos/danieljbutler/sets/72157628802174869/).
 
--   **Contact:** We send out e-mails via a [listhost](https://groups.google.com/forum/?fromgroups#!forum/hpfrisbee). You can also contact [one of our players](mailto:matt_rocklin@yahoo.com) for more information.
+-   **Contact:** We send out e-mails via a [listhost](https://groups.google.com/forum/?fromgroups#!forum/hpfrisbee). You can also contact [one of our players](mailto:joebailey.5@gmail.com) for more information.
 
 ### FAQ
 
